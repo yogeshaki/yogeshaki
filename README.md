@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yogeshaki
+- 👋 Hi, I’m yogesh
 - 👀 I’m interested in communication, codeing and my passion is doing workout
 - 🌱 I’m currently learning communication and engineering
 - 💞️ I’m looking to collaborate on 
